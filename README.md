@@ -13,4 +13,4 @@ be steady cinnamoroll
 ![subwayabovecity](./image/subwayabovecity.gif)
 -->
 
-animation & video by mareykrap [This is not BLUE ]
+animation & video by mareykrap - [ This is not BLUE ]
